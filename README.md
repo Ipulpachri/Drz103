@@ -4,8 +4,8 @@
 
 <p align="center">
 
-- Hy Im Raditya
-- I am 17 years old
+- Hy Im Fachri
+- I am 13 years old
 - I live in Indonesian
 - Thank you and follow me
 
